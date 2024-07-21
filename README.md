@@ -1,5 +1,9 @@
 <h1> NCIS-Hawai izle | 1dizifilmizle </h1>
 
+
+<a href="https://1dizifilmizle.com/dizi/ncis-hawai-i"><img src="https://1dizifilmizle.com/uploads/series/cover/original/ncis-hawai-i-1555.webp" alt="NCIS-Hawai izle" /></a>
+
+
 Diziyi buradan izleyebilirsiniz => https://1dizifilmizle.com/dizi/ncis-hawai-i
 
 NCIS: Hawai'i İzle - Aksiyon ve Suç Dolu Bir Macera
